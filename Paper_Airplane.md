@@ -1,5 +1,5 @@
 # How to make a paper airplane
-1.Step1: Fold in Half
+Step1: Fold in Half
 Step2: Fold the Cockpit
 Step3: Fold the Cockpit Down
 Step4: Fold the 2nd Cockpit
